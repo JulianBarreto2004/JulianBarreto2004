@@ -14,6 +14,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-I am Julian and I love playing pokemen go. I also love playing games on my nintendo switch such as super smash bros ultimate. My favorite seasons are summer and fall. I love going to Lehman college because it is easy for me to go to because of where I live in. I love to be home alone and stay outside the building.
+I am Julian and I love playing pokemen go. I also love playing games on my nintendo switch such as super smash bros ultimate. My favorite seasons are summer and fall. I love going to Lehman college because it is easy for me to go to because of where I live in. I love to be home alone and stay outside the building. I like to talk to other people while i am outside. I would like to go out with friends in the future.
 
 ![My Skills](https://skillicons.dev/icons?i=apple,instagram,)
